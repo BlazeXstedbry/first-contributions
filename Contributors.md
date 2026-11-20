@@ -1,3 +1,4 @@
+-[Avyukt Mishra](https://github.com/BlazeXstedbry)- Hi this is my first contribution
 - [Tanay Agarwal] (https://github.com/TanayAg53)- Hi, This Is My First Contribution!!
 - [Vaibhav Shivam](https://github.com/Vaibhav-Shivam) - My first contribution!
 - [Abhinaba Das](https://github.com/abhinaba75) - Hi, there connect me at https://e075.com 👀
